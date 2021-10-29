@@ -1,6 +1,10 @@
 # **Pack de texture :**
 **_Si vous avez un problème avec le téléchargement d'un pack ou quoi que ce soit d'autre venez en mp discord (Twyxis#3154)._**
 --------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+J'ajouterai des pack régulièrement (si j'ai pas la flemme), j'éspère que vous allez aimer les packs, au pire je m'en fou c'est mes packs :
+
+
 <a
 href="https://www.mediafire.com/file/qopgwdg84lb2nkc/%2521_%25C2%25A77Xetha%25C2%25A7fFaith%25C2%25A7f%255B%25C2%25A74C%25C2%25A72E%25C2%25A7f%255D_%25C2%25A7f3.1.zip/fil">**XethaFaith[CE] 3.1 :**</a>
 
