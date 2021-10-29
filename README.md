@@ -26,6 +26,12 @@ href="https://www.mediafire.com/file/qopgwdg84lb2nkc/%2521_%25C2%25A77Xetha%25C2
 
 --------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
+<a href="https://www.mediafire.com/file/yq97fm2b5oo4hpg/%21%A76p0kemon_%A7d2k.zip/file"> **p0kemon 2k :**</a>
+
+![pack 9](https://user-images.githubusercontent.com/93156024/139478939-2c224ac5-ef3e-421d-937f-5be10b94a0cb.png)
+
+--------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
 <a href="http://www.mediafire.com/file/f7mnb1gmvao071y/%2521_%25C2%25A74Verzide_v3_%25C2%25A7l%25C2%25A7f%255BNew_Particles%255D.zip/file"> **Verzide v3 [New Particles] :** </a>
 
 ![pack 5](https://user-images.githubusercontent.com/93156024/139477665-d7fdb013-a214-4251-8352-06d8561adab5.png)
