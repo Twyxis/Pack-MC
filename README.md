@@ -65,7 +65,11 @@ href="https://www.mediafire.com/file/qopgwdg84lb2nkc/%2521_%25C2%25A77Xetha%25C2
 
 ![pack 10](https://user-images.githubusercontent.com/93156024/139499406-52ecf3c8-6eb7-42eb-9ec6-5df0295eea03.png)
 
+--------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
+**mise à jour dans... pas longtemps tkt.**
+
+Copyright ©2020 Twyxis(Teishö)
 
 
 
