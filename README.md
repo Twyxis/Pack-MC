@@ -26,3 +26,31 @@ href="https://www.mediafire.com/file/qopgwdg84lb2nkc/%2521_%25C2%25A77Xetha%25C2
 
 --------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
+<a href="http://www.mediafire.com/file/f7mnb1gmvao071y/%2521_%25C2%25A74Verzide_v3_%25C2%25A7l%25C2%25A7f%255BNew_Particles%255D.zip/file"> **Verzide v3 [New Particles] :** </a>
+
+![pack 5](https://user-images.githubusercontent.com/93156024/139477665-d7fdb013-a214-4251-8352-06d8561adab5.png)
+
+--------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+<a href="https://www.mediafire.com/file/0vifa6noqcelqis/%2521_%25C2%25A7dPink_%25C2%25A7eLemonade_%255B32x%255D.zip/file"> **Pink Lemonade [32x] :**</a>
+
+![pack 6](https://user-images.githubusercontent.com/93156024/139478110-6cde2e48-00c1-4207-a541-72277b5f9d16.png)
+
+--------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+<a href="https://www.mediafire.com/file/mp8msy54el604b7/%2521_%25C2%25A7dPink_%25C2%25A7eLemonade_%255B32x%255D_%25C2%25A79Nebula_%25C2%25A75Recolor.zip/file"> **Pink Lemonade [32x] Nebula Recolor :** </a>
+
+![pack 7](https://user-images.githubusercontent.com/93156024/139478317-e8260598-6e4c-43f8-95de-054551530347.png)
+
+--------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+<a href="https://www.mediafire.com/file/cql0ey4jct43w9i/%21_%A7eVene_%A79Eum3_%A7c32x.zip/file"> **Vene Eum3 32x :** </a>
+
+![pack 8](https://user-images.githubusercontent.com/93156024/139478557-3c6d96b0-a301-4c72-851e-16ed0c64321b.png)
+
+
+
+
+
+
+
